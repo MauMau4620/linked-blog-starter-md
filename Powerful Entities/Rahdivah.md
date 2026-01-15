@@ -1,0 +1,1 @@
+An insane, torn-to-pieces and re-assembled version of Rah's daughter, produced in the cloning vats of Bergenfaur labs. Has a connection to [[Malekith]], the nature of which I'll have to set in stone.
